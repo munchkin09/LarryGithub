@@ -1,5 +1,5 @@
 # Larry Plotter
 
-Esta serie de libros cuentan la historia de un hacker único
+Esta serie de libros cuentan la historia de un hacker ï¿½nico
 
-**Carlos Ledesma**
+**Carlos Ledesma**, Larry Plotter fan.
